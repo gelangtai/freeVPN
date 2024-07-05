@@ -41,7 +41,7 @@
 
 建议大家使用卡巴斯基的免费VPN的时候采取轻量级使用，上外网查查资料，浏览下网页完全没有问题，如果要看视频流媒体的话，建议大家用下面两款VPN。
 
-### 卡巴斯基VPN下载地址：[点击下载卡巴斯基VPN](https://www.kaspersky.com.tw/updates/home-security/secure-connection)
+### 卡巴斯基VPN下载地址：[点击下载卡巴斯基VPN](https://xuebi0702.com)
 
 ## 第二款免费梯子：西部世界（westworld VPN）
 
